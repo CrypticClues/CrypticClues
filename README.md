@@ -32,10 +32,7 @@ I say meow and sighs a lot — kinda like a stim (?)
 If u want to know more abt me there’s a links on here !
 
 
+
 ★ ‧˚⊹ " We don't follow crowds, we mold them new
 I'm not done, believe me . 🦴"
-<!---
-![IMG_5284](https://github.com/user-attachments/assets/d8fd22c4-8805-4bf7-9f2d-eab0913bd168)
-
-
---->
+![IMG_5280](https://github.com/user-attachments/assets/ae85eab9-5746-42cd-ac8f-accb7861ff4f)
