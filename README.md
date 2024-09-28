@@ -1,4 +1,4 @@
-‧˚⊹ " I won't fall down u need me . 💛"
+★ ‧˚⊹ " I won't fall down u need me . 💛"
 
 
 Aha ,, I’ll try to do an intro pls read b4 interacting ! - formalities are always a bit embarrassing for me .
