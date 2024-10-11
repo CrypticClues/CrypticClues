@@ -8,11 +8,12 @@ Aha ,, I’ll try to do an intro pls read b4 interacting ! - formalities are alw
 
 Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I have too many names) .
 ; ꒰ ⭐️ : Im black  . 🪼
+
 (๑> ₃ <)
 
 ┈┈┈ ୨୧ ┈┈┈
 
-⋆ ˚｡ ,, feel free 2 Cuddle or hide <33 keep in mind I may be offtab most of the time — other than that if I don’t speak much it’s usually bc I’m super shy + I’m socially anxious
+⋆ ˚｡ ,, feel free 2 Cuddle or hide <33 keep in mind I may be offtab most of the time — other than that if I don’t speak much it’s usually bc I’m super shy + I’m socially anxious . . if i poof its normally because of internet , i fell asleep or bc i was offtab too long im bazically almost online all the time 
 ‧
 
 ˚ ୨୧ . . Pls use tone tags w me ,, I sometimes don’t understand social cues so pls bare w me. 
