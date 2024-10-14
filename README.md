@@ -20,7 +20,7 @@ Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I 
 My disc is hajimesrealhusband You may add although pls ask b4 doing so ! I may not talk 2 u much until I’m used 2 u
 
 
-I don't alwayz stay in one fandom area , zo if im gone and online I'm usally in diff area'z of fandomz i'm in , btw if u ever friend me plz do not friend me js to unfriend me later , bc why befriend some1 if you're gonna throw them away right after  .
+I don't alwayz stay in one fandom area ,, zo if im gone and online I'm usally in diff area'z of fandomz i'm in , btw if u ever friend me plz do not friend me js to unfriend me later ,, bc why befriend some1 if you're gonna throw them away right after  .
 
 
 
