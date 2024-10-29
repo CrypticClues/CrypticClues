@@ -6,7 +6,8 @@ Aha ,, I’ll try to do an intro pls read b4 interacting ! - formalities are alw
 ┈┈┈ ୨୧ ┈┈┈
 
 
-Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I have too many names) .
+Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I have too many namez) .
+
 ; ꒰ ⭐️ : Im black  . 🪼
 
 (๑> ₃ <)
@@ -16,10 +17,10 @@ Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I 
 ⋆ ˚｡ ,, feel free 2 Cuddle or hide <33 keep in mind I may be offtab most of the time — other than that if I don’t speak much it’s usually bc I’m super shy + I’m socially anxious . . if i poof its normally because of internet , i fell asleep or bc i was offtab too long im bazically almost online all the time 
 ‧
 
-Any shipz int as long as itz not toxic or weird , proshipping , pedophilic , incest etc yknow the basicz 
+Any shipz int as long as itz not toxic or weird , proshipping ,, pedo , incest etc yknow the basicz 
 
 
-I dont usually int first if we're not frienndz but I may somtimez ! i'm zuper socially  Awkward   . . .  I may be even afraid to crown u if I like ur pony bc pretty poniez intimadate me sometimez (in a pos way it jz meanz ur pony iz zo pretty i think i dont deserve to be near it)
+I dont usually int first if we're not frienndz but I may somtimez ! i'm zuper socially  Awkward   . . .  I may be even afraid to crown u if I like ur pony bc pretty poniez intimadate me sometimez (in a pos way it js meanz ur pony iz so pretty i think i dont deserve to be near it)
 
 
 ˚ ୨୧ . . Pls use tone tags w me ,, I sometimes don’t understand social cues so pls bare w me. 
@@ -30,7 +31,7 @@ I don't alwayz stay in one fandom area ,, zo if im gone and online I'm usally in
 
 
 
-Typing quirk “s” becomes “z” sometimez and spaced out periods explanation points , etc .
+Typing quirk “s” becomes “z” sometimez and double commaz spaced out periods explanation points ,,   etc .
 
 ┈┈┈ ୨୧ ┈┈┈
 
