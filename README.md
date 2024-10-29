@@ -16,6 +16,12 @@ Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I 
 ⋆ ˚｡ ,, feel free 2 Cuddle or hide <33 keep in mind I may be offtab most of the time — other than that if I don’t speak much it’s usually bc I’m super shy + I’m socially anxious . . if i poof its normally because of internet , i fell asleep or bc i was offtab too long im bazically almost online all the time 
 ‧
 
+Any shipz int as long as itz not toxic or weird , proshipping , pedophilic , incest etc yknow the basicz 
+
+
+I dont usually int first if we're not frienndz but I may somtimez ! i'm zuper socially  Awkward   . . .  I may be even afraid to crown u if I like ur pony bc pretty poniez intimadate me sometimez (in a pos way it jz meanz ur pony iz zo pretty i think i dont deserve to be near it)
+
+
 ˚ ୨୧ . . Pls use tone tags w me ,, I sometimes don’t understand social cues so pls bare w me. 
 My disc is hajimesrealhusband You may add although pls ask b4 doing so ! I may not talk 2 u much until I’m used 2 u
 
@@ -30,10 +36,14 @@ Typing quirk “s” becomes “z” sometimez and spaced out periods explanatio
 
 
 Fiction kin + C’link of many
+
 I’m in multifandomz — basically too many interestz to list
 
 
-I say meow and sighs a lot — kinda like a stim (?)
+I say meow, yawn(z) and sighs a lot — kinda like a stim (?)
+
+i sometimez zay actionz outloud in text aha for example : "Looks around ??" "sweatz" etc . 
+
 If u want to know more abt me there’s a links on here !
 
 
