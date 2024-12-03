@@ -17,7 +17,11 @@ Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I 
 ⋆ ˚｡ ,, feel free 2 Cuddle or hide <33 keep in mind I may be offtab most of the time — other than that if I don’t speak much it’s usually bc I’m super shy + I’m socially anxious . . if i poof its normally because of internet , i fell asleep or bc i was offtab too long im bazically almost online all the time 
 ‧
 
-Any shipz int as long as itz not toxic or weird , proshipping ,, pedo , incest etc yknow the basicz 
+Any shipz int as long as itz not toxic or weird , proshipping ,, pedo , incest etc yknow the basicz alzo ocxcanon may int !! i love ocxcanon and would love to know abt ur oc(s)
+
+
+**DNI** - Homophobez , racists , transphobez any toxic fans of any intrest and also most importantly murder drone panic au DNIII unless we're friendz . that au makez me highly uncomfy and even panic slightly .
+
 
 
 I dont usually int first if we're not frienndz but I may somtimez ! i'm zuper socially  Awkward   . . .  I may be even afraid to crown u if I like ur pony bc pretty poniez intimadate me sometimez (in a pos way it js meanz ur pony iz so pretty i think i dont deserve to be near it)
