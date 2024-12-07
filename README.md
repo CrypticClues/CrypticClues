@@ -49,7 +49,7 @@ I say meow, yawn(z) and sighs a lot — kinda like a stim (?)
 
 i sometimez zay actionz outloud in text aha for example : "Looks around ??" "sweatz" etc . 
 
-If u want to know more abt me there’s a links on here !
+If u want to know more abt me there’s links on here !
 
 
 
