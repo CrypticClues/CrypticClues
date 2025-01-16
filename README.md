@@ -20,8 +20,7 @@ Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I 
 Any shipz int as long as itz not toxic or weird , proshipping ,, pedo , incest etc yknow the basicz alzo ocxcanon may int !! i love ocxcanon and would love to know abt ur oc(s)
 
 
-**DNI** - Homophobez , racists , transphobez any toxic fans of any intrest and also most importantly murder drone panic au DNIII unless we're friendz . that au makez me highly uncomfy and even panic slightly .
-
+**DNI** - Homophobez , racists , transphobez any toxic fans of any intrest and also most importantly murder drone panic au DNIII unless we're friendz . that au makez me highly uncomfy and even panic slightly .  and also . this is sorta a call our to someone "☆ BITE ME! ☆ | C+H | SYS ☆" theyre also a panic "system" commonly using ghost zi + uses Nyx and N too pls do NOT interact with me . youre a horrible person and bash others invalidating their feelings and what they feel uncomfortable with . youre also a fake system . grow up be more mature , get a life , and stop bothering me and my friends .to anyone who see's this be careful please and dni w them at all . 
 
 
 I dont usually int first if we're not frienndz but I may somtimez ! i'm zuper socially  Awkward   . . .  I may be even afraid to crown u if I like ur pony bc pretty poniez intimadate me sometimez (in a pos way it js meanz ur pony iz so pretty i think i dont deserve to be near it)
