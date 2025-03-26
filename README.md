@@ -8,7 +8,7 @@ Aha ,, I’ll try to do an intro pls read b4 interacting ! - formalities are alw
 
 Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I have too many namez) .
 
-; ꒰ ⭐️ : Im black  . 🪼
+; ꒰ ⭐️ : Im black  . 🍷
 
 (๑> ₃ <)
 
