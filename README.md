@@ -54,4 +54,5 @@ If u want to know more abt me there’s links on here !
 
 ★ ‧˚⊹ " We don't follow crowds, we mold them new
 I'm not done, believe me . 🦴"
-![IMG_5280](https://github.com/user-attachments/assets/ae85eab9-5746-42cd-ac8f-accb7861ff4f)
+
+![IMG_2509](https://github.com/user-attachments/assets/3a21c05b-9379-4ffb-b5f3-ef91c3867732)
