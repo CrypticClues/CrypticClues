@@ -1,4 +1,4 @@
-★ ‧˚⊹ " I won't fall down u need me . 💢"
+★ ‧˚⊹ " But still you end up underneath my skin . 💢"
 
 
 Aha ,, I’ll try to do an intro pls read b4 interacting ! - formalities are always a bit embarrassing for me .
@@ -52,7 +52,6 @@ If u want to know more abt me there’s links on here !
 
 
 
-★ ‧˚⊹ " We don't follow crowds, we mold them new
-I'm not done, believe me . 🦴"
+★ ‧˚⊹ " Take me down ,, a little bit harder now . . Down to the dance floor . 🦴"
 
 ![IMG_2509](https://github.com/user-attachments/assets/3a21c05b-9379-4ffb-b5f3-ef91c3867732)
