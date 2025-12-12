@@ -17,7 +17,7 @@ Hey hey ,, I’m spookie or Noah anything u wanna call me really idc or mind (I 
 ⋆ ˚｡ ,, feel free 2 Cuddle or hide <33 w2i encouraged as well ! keep in mind I may be offtab most of the time — other than that if I don’t speak much it’s usually bc I’m super shy and nervous + I’m socially anxious . . if i poof its normally because of internet , i fell asleep or bc i was offtab too long im bazically almost online all the time 
 ‧
 
-Any shipz int as long as itz not toxic or weird , proshipping ,, pedo , incest etc yknow the basicz alzo ocxcanon may int !! i love ocxcanon and would love to know abt ur oc(s) ,, Yumeships are also welcome !! 
+Any shipz int as long as itz not **really** toxic (and I dont mean doomed) ,, weird  ,, pedo , incest etc yknow the basicz alzo ocxcanon may int !! i love ocxcanon and would love to know abt ur oc(s) ,, Yumeships are also welcome !! 
 
 
 **DNI** - Basic criteria , Homophobez , racists , transphobez etc ,, any toxic fans of any interests and also most importantly murder drone panic au DNIII unless we're friendz . that au makez me highly uncomfy and even panic slightly .  and also . this is sorta a call out to someone "☆ BITE ME! ☆ | C+H | SYS ☆"  pls do NOT interact with me . to anyone who see's this be careful please or dni w them at all . blacklist deleted as its no longer needed .
